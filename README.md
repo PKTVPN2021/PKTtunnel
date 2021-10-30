@@ -1,2 +1,2 @@
 👉VIP serverများ အထူးဈေး နှစ်လ ၃၅၀၀ဖြင့် ၀ယ်သုံးနိုင်ပါတယ်
-👉Telegram💙https://t.me/PKTVPNmyanmar
+👉၀ယ်ရန်💙https://m.me/www.kokyaw.2021
